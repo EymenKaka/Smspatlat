@@ -1,0 +1,2 @@
+# Smspatlat
+Smspatlatkanka
